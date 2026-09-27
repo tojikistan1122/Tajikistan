@@ -1,0 +1,2 @@
+# Tajikistan
+Dangara
